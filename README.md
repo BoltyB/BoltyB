@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @BoltyB
+- 👀 I’m interested in snowboarding, video games, watching movies, and going to games 
+- 😄 Pronouns: He/Him
